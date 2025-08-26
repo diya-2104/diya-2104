@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @diya-2104
-- 💞️ I’m looking to collaborate on Mobile application Development
+- 💞️ I’m looking to collaborate on Mobile AND Web APPlication Development
 - 📫 How to reach me ranadiya2104@gmail.com
 - 😄 Pronouns: she/her
 
